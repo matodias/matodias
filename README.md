@@ -1,6 +1,6 @@
 ### Selam ben Matodias. 👋
 
-' Kendimden kısa bi şekilde bahsedeyim.Uzun süre boyunca bir çok @discord sunucusunda görev aldım.Öğrenmeyi ve kendimi geliştirmeyi seviyorum.Yazılım ile 2-3 yıldır içli dışlıyım.
+' Kendimden kısa bi şekilde bahsedeyim.Uzun süre boyunca bir çok Discord sunucusunda görev aldım.Öğrenmeyi ve kendimi geliştirmeyi seviyorum.Yazılım ile 2-3 yıldır içli dışlıyım.
 
 ### 💸 Aktif olarak kullandığım sosyal medya hesaplarıma ulaşmak için;
 
